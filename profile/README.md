@@ -1,10 +1,8 @@
-# How to Get the Filmora Free Trial & Why It’s Worth Trying  
+## How to Get the Filmora Free Trial & Why It’s Worth Trying  
 
 If you’ve been looking for a simple yet powerful video editor, chances are you’ve already heard about **Filmora**. It has become one of the go-to editing tools for creators, beginners, and even small businesses because of its user-friendly interface and professional-grade features.  
 
 The best part? You don’t have to buy it right away. You can start with the **Filmora free trial** and test everything before making a decision.  
-
-In this post, I’ll walk you through how to get the **Filmora free trial**, what you can expect from it, and why it’s a smart choice if you’re just stepping into the world of video editing.  
 
 ---
 
